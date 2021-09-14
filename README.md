@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Tony Simpson
+- 👀 I’m interested in many things, possibly all the things, except football and reality TV shows
+- 🌱 I’m currently learning how to avoid conversations about football and reality TV shows
+- 📫 You can reach me at https://www.linkedin.com/in/tonysimpson09/
